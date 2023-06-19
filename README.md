@@ -1,1 +1,1 @@
-You can reach me on discord: Zac6868
+Discord: zac6868
